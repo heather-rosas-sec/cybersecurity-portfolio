@@ -15,5 +15,4 @@ Aspiring cybersecurity professional with a background in leadership and operatio
 
 ## Contact
 📧 Email: heatherrosas13@gmail.com  
-🔗 LinkedIn: [
-](https://www.linkedin.com/in/heather-rosas-65722aa8/overlay/contact-info/#:~:text=Your%20Profile-,linkedin.com/in/heather%2Drosas%2D65722aa8,-Email)
+🔗 LinkedIn:(https://www.linkedin.com/in/heather-rosas-65722aa8/overlay/contact-info/#:~:text=Your%20Profile-,linkedin.com/in/heather%2Drosas%2D65722aa8,-Email)
